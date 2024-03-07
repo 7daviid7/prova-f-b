@@ -1,2 +1,2 @@
 # prova-f-b
-hem dic guillem i soc homosexual 
+Hola em dic David Quintanilla Jimenez
